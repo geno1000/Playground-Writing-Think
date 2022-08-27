@@ -1,1 +1,1 @@
-# Playground-Writing-Diary
+# Playground-Writing-OnePageLightNovel
